@@ -1,4 +1,4 @@
-# 👋 Hi, I’m @imkinagana
+# 👋 Hi,
 
 Contact me on
 
