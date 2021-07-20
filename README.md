@@ -1,4 +1,4 @@
-# 👋 Hi,
+# 👋 Hi, I'm Kinagana
 
 Contact me on
 
